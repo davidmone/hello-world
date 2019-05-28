@@ -1,3 +1,3 @@
 # hello-world
 Start it.
-Hi humans! I like vaping and writing something on my keyboard :).
+I like vaping and writing something on my keyboard. H C N O P
